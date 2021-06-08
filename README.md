@@ -1,4 +1,4 @@
-A Powerful Self-Help Technique Combining Tapping Therapy and Free Association
+# A Powerful Self-Help Technique Combining Tapping Therapy and Free Association
 
 December 2020. v1.0 by Lee Cooper
 
@@ -24,20 +24,19 @@ development, or anyone dealing with stresses or emotional problems to give it a 
 There are two parts to the technique:
 
 1. Learn and practice the 'tapping therapy' known as 'Emotional Freedom Technique
-  ‘EFT’ [1]. The technique involves tapping on various parts of
-  the body whilst repeating fixed phrases that address negative
-  feelings you are experiencing. I did not develop Emotional Freedom
-  Technique, and will not go into detail on it here. I will not
-  explain the theory behind it as it is not a prerequisite to use it
-  successfully. It is not a faith based technique, so you don't need
-  to 'believe in it.' Simply follow the process and you should see
-  results.
-  
+   ‘EFT’ [1]. The technique involves tapping on various parts of
+   the body whilst repeating fixed phrases that address negative
+   feelings you are experiencing. I did not develop Emotional Freedom
+   Technique, and will not go into detail on it here. I will not
+   explain the theory behind it as it is not a prerequisite to use it
+   successfully. It is not a faith based technique, so you don't need
+   to 'believe in it.' Simply follow the process and you should see
+   results.
+
 2. Apply the
-  Emotional Freedom Technique with a focus on free association and
-  tapping on whatever comes up WITH NO FILTER or VALUE JUDGEMENT on
-  the material that is experienced. More on this later.
-  
+   Emotional Freedom Technique with a focus on free association and
+   tapping on whatever comes up WITH NO FILTER or VALUE JUDGEMENT on
+   the material that is experienced. More on this later.
 
 ### The Technique - Detail
 
@@ -72,15 +71,14 @@ extremely simple:
    to your mind as you tap. Personally I usually don't assess the
    intensity of my emotions on the 1-10 scale. Whilst it can be useful,
    I find it interrupts the process and the stream of thought.
-  
+
 - As the tapping
    process continues, your thoughts will change. All you have to do is
    tap on each thought as it comes up and follow the stream of thought.
-  
+
 - DO NOT make a
    conscious decision on what to accept as part of the process and what
    to reject.
-  
 
 Congratulations,
 you now know how to combine EFT with free association.!
@@ -242,18 +240,17 @@ some examples. The mind is very clever in its distractions.
 ## Summary of Technique
 
 1. Learn the EFT
-  'basic recipe' from
-  
-  [How to do the EFT Tapping Basics - The Basic Recipe | PART I For Everyone: The EFT Tapping Basics | Official EFT Tutorial](https://www.emofree.com/eft-tutorial/tapping-basics/how-to-do-eft.html)
-  
+   'basic recipe' from
+   
+   [How to do the EFT Tapping Basics - The Basic Recipe | PART I For Everyone: The EFT Tapping Basics | Official EFT Tutorial](https://www.emofree.com/eft-tutorial/tapping-basics/how-to-do-eft.html)
+
 2. Apply the
-  tapping technique, but just tap on each thing that comes to mind as
-  it arises and follow the stream of thought.
-  
+   tapping technique, but just tap on each thing that comes to mind as
+   it arises and follow the stream of thought.
+
 3. Follow the
-  **Golden
-  Rule**. ***YOU GOT THAT YET?!!!!***
-  
+   **Golden
+   Rule**. ***YOU GOT THAT YET?!!!!***
 
 ## A Selection of the Author's Experiences
 
