@@ -93,9 +93,7 @@ YOU
 MUST STICK TO THE **GOLDEN
 RULE!**
 
-## The
-
-Golden Rule
+## The Golden Rule
 
 The Golden Rule for
 successfully applying free association is this:
